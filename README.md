@@ -21,7 +21,7 @@
 
 ### Connect with Me
 
-LinkedIn: www.linkedin.com/in/naimur-rahaman
+LinkedIn: https://www.linkedin.com/in/naimur-rahaman-b44371241
 
 Email: naimxno@gmail.com
 
